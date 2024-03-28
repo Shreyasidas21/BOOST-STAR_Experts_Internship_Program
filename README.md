@@ -37,6 +37,10 @@ Welcome to BOOST STAR Experts, your dedicated partners in e-commerce excellence.
 
 
 
+![Screenshot 2024-03-28 211958](https://github.com/Shreyasidas21/BOOST-STAR_Experts_Internship_Program/assets/104278102/429b5c03-d008-4a90-bcfe-6dec67ee4dd8)
+
+
+
 
 
 
